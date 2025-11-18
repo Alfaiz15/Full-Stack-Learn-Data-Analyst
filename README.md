@@ -1,4 +1,4 @@
-# 🚀 Data Analyst Portfolio: Driving Operational Efficiency & Automation
+# 🚀 Data Analyst Portfolio - Driving Operational Efficiency & Automation
 
 ## 🎯 Skills & Impact Summary
 
